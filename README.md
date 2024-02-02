@@ -1,1 +1,1 @@
-# Supervision
+# Supervision![alt text](<Screenshot 2024-02-02 104848.png>) ![alt text](<Screenshot 2024-02-02 110805.png>) ![alt text](<Screenshot 2024-02-02 111103.png>) ![alt text](<Screenshot 2024-02-02 120751.png>)
